@@ -16,7 +16,7 @@ __2.Billie Eilish__
 + 애매할 수 있는 느낌을 잘 완성시킴
 + Bad guy, bellyache, watch 등
 
-__3.이바다__
+__3.이바다__  
 ![leebada](https://www.ccdn.co.kr/news/photo/201910/608334_250542_0208.jpg)
 
 + 한국의 Alessia Cara
